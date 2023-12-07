@@ -1,1 +1,1 @@
-# Bancada-Did-tica
+# Bancada-Didática
